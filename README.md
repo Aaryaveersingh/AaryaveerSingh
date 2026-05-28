@@ -66,7 +66,7 @@
 
 * LinkedIn:(https://www.linkedin.com/in/aryaveersingh1/)
 * GitHub:(https://github.com/Aaryaveersingh)
-* Email: [singh.aryaveer.1211@gmail.com]
+* Email: (singh.aryaveer.1211@gmail.com)
 
 ---
 
